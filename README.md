@@ -1,13 +1,13 @@
-- 👋 Hi, I’m @kcbmula pleasure for me to help out. 
-- 👀 I’m interested in. Etc. (dope, designer typ-klær & mote/ghettostil, game gear on & on and on.)
+æ- 👋 Hi, I’m @kcbmula pleasure for me to help out it's something. 
+- 👀 I’m interested in. Etc. (dope, designer typ-klær & ghettostil on & on and on.)
 - 🌱 I’m currently learning basic class... Livet - money management.💵
 - 💞️ I’m looking to collaborate on ... riktiga iaf må d vara då vis dt flickvän du tyckte. 
-- 📫 How to reach me ... Telegram if not signal. ($afe msg end 2 end så nært slutten)
+- 📫 How to reach me ... Teleg if not signal. ($afe msg end 2 end så nært slutten)
 - 😄 Pronouns: ... .(Choices) Tap-In on teleg. to get whatever u wonder.
 - ⚡ Fun fact: ... Can fix most likely every thang if some1, needs. 
 - 🤯 Spreading: ... luv, best hugs, always make settings 💯% urself.
 - 👋 Hi, I’m:   ... @kcbmula and im all new with this teleg.setup thaaang. 
 - 💯 likely can fix.   :every thang if some1 need. 
-- ❤️‍🔥 444limitless gang ... : loyal & good H$ guarantee from playing before. 
+- ❤️‍🔥 444limitless gang ... : loyal & good H$ guarantee frmda4. 
 - 💭 Cloud49 till i die. 
-- ✈️...: @kcbmula är lite mer priv där dom näraste ☠️hovud medans hellre @kcblanc är helt offentligt (fasade). 
+- ✈️...: @kcbmula är lite mer priv 
