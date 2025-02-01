@@ -9,12 +9,5 @@
 - 👋 Hi, I’m:   ... @kcbmula and im all new with this teleg.setup thaaang. 
 - 💯 likely can fix.   :every thang if some1 need. 
 - ❤️‍🔥 444limitless gang ... : loyal & good H$ guarantee from playing before. 
-- 💭 Cloud1-lagerstället  ... : Storage for unsafe, saved storage.  more or less, and is holding ur files & ur shit secured. 
-- 🍫.          ...: Fram tills d dags före chocklad 5minnuter ungefär. (kvikklönsj)
+- 💭 Cloud49 till i die. 
 - ✈️...: @kcbmula är lite mer priv där dom näraste ☠️hovud medans hellre @kcblanc är helt offentligt (fasade). 
-- 💵...:  @kcbmula and @kcblanc is a ✨ special skillfull YG out clacking. We randoms 2 eachother? cant believe it🥱
-- ☠️🥱OMG fattar nt grejen.gg Hoppas bara jwla fitta har du värklign ställ och pung?😥😳😱 riktig fiffi tjej jävel hade ru faktiskt🥶
-- 💩😹inga täkn på ngn artist hära, hallå räjal jvla transflicka är du totalt CP-diagnoserad.? hoppa nu lite mer undan dom här problemman🤓🥱👿
-- 😵‍💫🤐visa dg utsidan behvs/trengs inget assistans fälles bekända får nt snacka man-man🤭🤓
--💭🏃‍➡️😆 ta m verge , grangran , whatever orker nt. barn aktar sig tror han fattat nt d sköj, tur får hnm at han får andast imellan. 
-- 🕊️3 engler flyg avstället led åss nt ini fristelse fräls oss frn dt vonde, men jag ger upp hela vevan åka kmmr sitta mörda mannen full
